@@ -1,0 +1,100 @@
+vacation
+festive
+christmas
+vacations
+weekend
+celebrations
+birthday
+summer
+eid
+thanksgiving
+celebration
+travel
+recess
+feast
+tourist
+prom
+day
+fiesta
+trip
+season
+anniversary
+celebrate
+bairam
+festivals
+festival
+leisure
+shindig
+tourism
+break
+fun
+resort
+rest
+semester
+leave
+voyage
+fairs
+celebrates
+navidad
+stay
+party
+holliday
+pause
+compensatory
+truce
+shower
+salon
+journey
+exemption
+vacancies
+leaves
+vacancy
+clearance
+bachelor
+waiver
+counterfeit
+legalizing
+fake
+exoneration
+fête
+fêtes
+huo
+noël
+certification
+yuletide
+christmastime
+xmas
+yule
+guy fawkes night
+easter
+festivity
+festivus
+staycation
+chanukah
+bonfire night
+rosh hashanah
+christmastide
+honeymoon
+festiveness
+diwali
+winter
+holi
+halloween
+summertime
+yule log
+winter solstice
+religious holiday
+valentine day
+thankgiving
+legal holiday
+preholiday
+shopping
+hannukah
+holyday
+festlich
+jewish holy day
+whitsun
+christmases
+hanukah
+wahabee
+feastful

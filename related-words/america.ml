@@ -1,0 +1,100 @@
+usa
+united states of america
+us
+united states
+the americas
+american
+americans
+latino
+amerika
+latina
+latin
+continent
+mei
+lok
+americana
+hemisphere
+americano
+united
+states
+hometown
+américa
+amérique
+inter-american
+u.s
+u.s.a
+continued
+uses
+europe
+mexico
+africa
+asia
+britain
+canada
+india
+texas
+georgia
+obama
+england
+kansas
+washington
+tennessee
+british
+michigan
+germany
+alabama
+mcdonald
+florida
+japan
+thats
+utah
+oklahoma
+nebraska
+ryan
+illinois
+hollywood
+omaha
+penn
+indian
+hillary
+cuba
+wisconsin
+sri lanka
+pakistan
+maryland
+california
+south carolina
+african
+canadian
+atlanta
+zimbabwe
+dont
+mississippi
+european
+johnson
+chinese
+north carolina
+reagan
+george bush
+jimmy carter
+minnesota
+detroit
+ashley
+iowa
+dallas
+howard
+nigeria
+whats
+chris
+walmart
+nevada
+perth
+korea
+dick cheney
+ronnie
+iran
+ethiopia
+denver
+ppl
+chicago
+ralph

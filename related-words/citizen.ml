@@ -1,0 +1,100 @@
+citizenship
+resident
+citizenry
+person
+nationals
+inhabitant
+civic
+nationality
+civics
+westerner
+residents
+community
+man
+people
+public
+civilian
+constituent
+population
+capita
+civil
+compatriots
+individual
+canadians
+national
+bourgeois
+burger
+compatriot
+retainer
+belonger
+citoyen
+courseware
+varela
+noncitizen
+foreigner
+taxpaying
+politician
+immigrant
+voter
+taxpayer
+democracy
+government
+citizeness
+civism
+anticivism
+denization
+incivism
+decitizenize
+public law
+patriot
+businessperson
+isocracy
+burghership
+resiant
+civilist
+intercitizenship
+consular
+deportee
+soldier
+plebiscitum
+endenizen
+demarchy
+journalist
+elector
+noninhabitant
+freeborn
+civicism
+wisconsinite
+legislator
+townpeople
+public servant
+freedom of assembly
+expatriating
+peopler
+statocracy
+servant
+diplomat
+organic law
+schoolchild
+new jerseyan
+abider
+populace
+activist
+vermonter
+congressperson
+civil servant
+solider
+amphictyon
+lawbreaker
+traveler
+serviceman
+disnaturalize
+government man
+eunomy
+illinoisan
+politican
+member of parliament
+free vote
+landamman
+avoyer
+delawarean

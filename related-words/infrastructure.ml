@@ -1,0 +1,100 @@
+base
+facilities
+network
+construction
+equipment
+capital
+architecture
+installations
+structures
+amenities
+framework
+building
+substructure
+foundation
+structure
+facility
+subgrade
+venues
+basic
+endeavor
+fabric
+physical
+bricks
+inroads
+overhead
+basis
+cfi
+infostructure
+infrastructural
+pki
+telecommunication
+connectivity
+transportation
+modernization
+enterprise
+sewerage
+development
+governance
+telecom
+sector
+logistics
+electrification
+scalability
+implementation
+sewage system
+projects
+gas system
+systems
+networks
+upgrading
+investments
+greenfield
+bridges
+underbuilding
+sewer system
+roads
+resources
+services
+railways
+underinvestment
+capital expenditure
+capital outlay
+transport
+pipelines
+broadband
+utilities
+highways
+canalization
+prioritization
+bottlenecks
+technologies
+grids
+transportation system
+fiber optic cable
+communications
+buildings
+dilapidating
+sewage disposal
+economy
+intertie
+linkages
+telephony
+manpower
+functional obsolescence
+stadia
+bandwidth
+decarbonise
+cabling
+desalinisation
+funding
+reconstruction
+expansions
+initiatives
+vitalization
+sanitation
+dams
+economic
+gateways
+megaproject
+outlays

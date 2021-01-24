@@ -1,0 +1,100 @@
+century
+one hundred
+centred
+cardinal
+a hundred
+c
+one c
+thousand
+forty
+thousands
+tens
+ninety
+dime
+total
+penny
+cent
+percent
+cents
+pak
+pai
+nickel
+bermuda
+quarter
+soe
+wto
+set
+000
+100000
+100th
+150
+160
+200
+300
+400
+500
+800
+900
+suu
+soo
+fifty
+hundred thousand
+seventy
+twenty
+sixty
+eighty
+thirty
+dozen
+fifteen
+eleven
+fourteen
+eighteen
+seventeen
+five
+thirteen
+twelve
+nineteen
+sixteen
+nearly
+several
+eight
+six
+countless
+seven
+four
+fourty
+few
+one hundred one
+centuplicate
+gazillion
+millions
+zillion
+jillion
+roughly
+centuple
+billions
+hundred dollar bill
+years
+centuriate
+dollars
+bajillion
+threescore
+cardinal number
+handful
+bimillenary
+bucks
+pennies
+gazillions
+days
+weeks
+ten
+large number
+centumviri
+centiloquy
+centuries
+per centum
+vicenary
+busloads
+one
+kajillion
+ago

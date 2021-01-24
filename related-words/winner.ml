@@ -1,0 +1,100 @@
+victor
+achiever
+success
+champion
+finalist
+winning
+champ
+finalists
+won
+win
+wins
+prize
+prizewinner
+victory
+recipient
+triumph
+championship
+awardee
+conqueror
+laureate
+beneficiary
+award
+holder
+laureates
+medallist
+tournament
+honorary
+earning
+earn
+glory
+bearer
+athlete
+graduate
+elected
+price
+gain
+vector
+award-winning
+gagnant
+jie
+runner-up
+win-win
+contender
+semifinalist
+loser
+contest
+entrant
+consolation prize
+frontrunner
+nominee
+contestant
+trophy
+qualifier
+medalist
+honoree
+challenger
+underdog
+shortlist
+prize money
+runner
+finishers
+titlist
+titleist
+quarterfinalist
+newcomer
+favorites
+inamorato
+twotime
+upsetter
+longshot
+titleholder
+clincher
+quick temper
+pacesetter
+wildcard
+poy
+consolation
+booby prize
+formful
+lope de vega
+miracle man
+gingembre
+quinella
+entries
+win out
+decarchy
+hopefuls
+harness horse
+clinch
+squamosa
+finals
+title
+oedipe
+hero
+toll taker
+sentire
+topper
+deerhound
+decider
+cryptograph

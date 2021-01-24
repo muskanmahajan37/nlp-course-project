@@ -1,0 +1,100 @@
+pharmacist
+druggist
+apothecary
+pill pusher
+pill roller
+chemical
+laboratory
+pharmacy
+chemistry
+drugstore
+analyst
+biochemist
+pharmacologist
+physicist
+scientist
+microbiologist
+molecular biologist
+toxicologist
+pharmacognosy
+biophysicist
+bacteriologist
+herbalist
+crystallographer
+geneticist
+botanist
+inorganic chemistry
+biologist
+optician
+technologist
+lab
+geologist
+mathematician
+technician
+dermatologist
+iatrochemist
+laborant
+radiochemist
+iatrochemistry
+biotechnologist
+mechanical engineer
+metallurgist
+roald hoffmann
+fritz haber
+mycologist
+electrical engineer
+researcher
+analytical chemistry
+immunologist
+physiologist
+engineer
+physics laboratory
+microscopist
+harold kroto
+mineralogist
+glenn t. seaborg
+horticulturalist
+sir humphry davy
+neuroendocrinology
+astrophysicist
+trichologist
+anthropologist
+lecturer
+howard florey
+antoine lavoisier
+picric acid
+medical scientist
+magnetochemistry
+neuroscientist
+harold urey
+beautician
+professor
+robert bunsen
+neuropharmacology
+virologist
+diethylamide
+radiochemistry
+max perutz
+ceramist
+glassblower
+taxonomist
+oenologist
+draftsman
+boffin
+homoeopath
+photochemistry
+perfumer
+microencapsulation
+solvents
+entomologist
+henri becquerel
+goldsmith
+pharmaceutics
+haematologist
+compounder
+postdoc
+anatomist
+limnologist
+ceramicist
+salesman
+zoologist
